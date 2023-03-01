@@ -1,2 +1,2 @@
 # learn
-basics for wiki
+basics for : smile :
