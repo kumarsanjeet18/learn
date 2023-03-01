@@ -1,2 +1,2 @@
 # learn
-basics for : smile :
+basics for
