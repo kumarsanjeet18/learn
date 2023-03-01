@@ -1,0 +1,2 @@
+# learn
+basics for wiki
